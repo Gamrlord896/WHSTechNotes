@@ -6,3 +6,5 @@ if you use you light on your phone the sphero it well move and light up
 as a class we follew instuions
 # September 17, 2024
 this is free week
+# September 30, 2024
+they just find any data
