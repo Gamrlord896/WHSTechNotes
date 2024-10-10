@@ -8,3 +8,6 @@ as a class we follew instuions
 this is free week
 # September 30, 2024
 they just find any data
+# September 23, 2024
+1. Determining how accurately calculation are performed, particuary with decimal values
+2. 
