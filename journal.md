@@ -10,4 +10,3 @@ this is free week
 they just find any data
 # September 23, 2024
 1. Determining how accurately calculation are performed, particuary with decimal values
-2. 
