@@ -19,3 +19,6 @@ that typically require human thought
 and without fatigue
 # October 28, 2024
 idk
+# November 15, 2024
+just learnig how to code 
+idk
