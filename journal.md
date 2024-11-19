@@ -22,3 +22,7 @@ idk
 # November 15, 2024
 just learnig how to code 
 idk
+# November 18, 2024
+tjxgiving 
+idk
+idk
