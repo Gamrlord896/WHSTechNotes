@@ -33,7 +33,10 @@ idk
 The interesting thing I learned last week is some Tip of monster hunter
 # Fedruary 26 2025
 1.For language teachers, digital tools can revolutionise both student engagement and, on a more practical level, lesson planning and the use of classroom resources. Using cloud technology, language teachers can create and maintain an organised online repository of lesson materials.
+
 2.Chatbots boost student learning by providing real-time, personalized feedback and support. They can explain complex topics, offer tailored resources, and even adjust learning paths to suit individual needs, keeping students engaged and on track outside of classroom hours.
+
 3.Teaching students about appropriate slang usage helps develop essential skills related to social-emotional learning, such as: Effective communication: Understanding when to use slang and when to use more formal language helps students communicate clearly and respectfully in various social situations.
+
 4.Ways in which K-12 teachers think using slang in an academic setting affects students' language development: It can lead to misunderstandings or miscommunications (54%). It may disrupt the learning environment (50%). It diminishes formal writing skills (41%).
 
