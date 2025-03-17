@@ -15,6 +15,11 @@ they just find any data
 algorithms, date, and computational power to
 simulate human intelligence and perform tasks
 that typically require human thought 
+# March 17, 2025
+1.Pc,tik toc 
+2.Pc entertain me by playing gmaes 
+
+
 2.AI can perform repetitive, high-volume tasks reliably
 and without fatigue
 # October 28, 2024
