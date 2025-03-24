@@ -45,3 +45,6 @@ The interesting thing I learned last week is some Tip of monster hunter
 
 4.Ways in which K-12 teachers think using slang in an academic setting affects students' language development: It can lead to misunderstandings or miscommunications (54%). It may disrupt the learning environment (50%). It diminishes formal writing skills (41%).
 
+# March 24,2025
+AI only predicted a few upsets in the first round, like No. 10 Utah State seed beating No. 7 seed UCLA, even as upsets like that are pretty common. In addition, both had several No. 1 seeds advancing to the Final Four.
+
