@@ -50,3 +50,6 @@ AI only predicted a few upsets in the first round, like No. 10 Utah State seed b
 # April 7, 2025
 Through adaptive learning technologies, artificial intelligence can analyze a student's strengths, weaknesses, learning pace and preferences. This data allows AI systems to provide customized lesson plans and resources, ensuring that students receive instruction that is best suited to their individual learning styles.
 
+# May, 5, 2025
+1:let's be clear – in terms of raw power, the gorilla wins every time. An adult male silverback can weigh more than 160kg and lift about a tonne without going to the gym every day. Their upper-body strength is shocking.
+2:
