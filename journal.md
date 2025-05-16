@@ -52,4 +52,6 @@ Through adaptive learning technologies, artificial intelligence can analyze a st
 
 # May, 5, 2025
 1:let's be clear – in terms of raw power, the gorilla wins every time. An adult male silverback can weigh more than 160kg and lift about a tonne without going to the gym every day. Their upper-body strength is shocking.
-2:
+2: when one, or both parties don't ensure that they have the same idea of what was spoken about, or what decision was made
+3:Social media algorithms curate content based on user preferences and engagement, amplifying popular trends and making them visible to broader audiences
+
