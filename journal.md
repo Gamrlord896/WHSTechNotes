@@ -56,5 +56,6 @@ Through adaptive learning technologies, artificial intelligence can analyze a st
 3:Social media algorithms curate content based on user preferences and engagement, amplifying popular trends and making them visible to broader audiences
 
 # may, 19, 2025
-i just want to sleep in and play on my pc and ps5 
+i just want to sleep in and play on my pc and ps5 for summer 
+
 
