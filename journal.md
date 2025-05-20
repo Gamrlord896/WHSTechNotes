@@ -50,12 +50,12 @@ AI only predicted a few upsets in the first round, like No. 10 Utah State seed b
 # April 7, 2025
 Through adaptive learning technologies, artificial intelligence can analyze a student's strengths, weaknesses, learning pace and preferences. This data allows AI systems to provide customized lesson plans and resources, ensuring that students receive instruction that is best suited to their individual learning styles.
 
-# May, 5, 2025
+# May 5, 2025
 1:let's be clear – in terms of raw power, the gorilla wins every time. An adult male silverback can weigh more than 160kg and lift about a tonne without going to the gym every day. Their upper-body strength is shocking.
 2: when one, or both parties don't ensure that they have the same idea of what was spoken about, or what decision was made
 3:Social media algorithms curate content based on user preferences and engagement, amplifying popular trends and making them visible to broader audiences
 
-# May, 19, 2025
+# May 19, 2025
 i just want to sleep in and play on my pc and ps5 for summer 
 
 
