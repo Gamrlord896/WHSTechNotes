@@ -58,4 +58,8 @@ Through adaptive learning technologies, artificial intelligence can analyze a st
 # May 19, 2025
 i just want to sleep in and play on my pc and ps5 for summer 
 
+# September 2, 2025
+The New Cell Phone Law 
+I mean i know we can't use our phone...then why can't we use it in our free time!?
+
 
