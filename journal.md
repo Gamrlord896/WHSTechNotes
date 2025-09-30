@@ -66,4 +66,7 @@ I mean i know we can't use our phone...then why can't we use it in our free time
 Dont know what to add here 
 
 # September 22, 2025
-why would i work in ikea in roblox 
+why would i work in ikea in roblox
+
+# September 30, 2025
+i dont know what this "6, 7" stuff is so yeah idk 
