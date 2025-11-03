@@ -70,3 +70,12 @@ why would i work in ikea in roblox
 
 # September 30, 2025
 i dont know what this "6, 7" stuff is so yeah idk 
+
+# October 14, 2025
+didnt wanted to do this and i could't sign in 
+
+# October 20, 2025
+|Name|	|Class|	|Seat|
+|Franklin|	|Second|	|91A|
+|Hardeep|	|Third|	|61F|
+|Marla|	|First|	|35B|
