@@ -79,3 +79,9 @@ didnt wanted to do this and i could't sign in
 |Franklin|	|Second|	|91A|
 |Hardeep|	|Third|	|61F|
 |Marla|	|First|	|35B|
+
+# October 27, 2025
+Name|	|Main Dish|	|Dessert|
+|Fiona|	|Shrimp Ceviche|	|Creme Brulee|
+|Tobias|	|Beef Wellington|	|Raspberry Tiramisu|
+|Leanne|	|Gado Gado	French| |Apple Cake|
