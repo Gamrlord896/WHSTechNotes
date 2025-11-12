@@ -87,4 +87,5 @@ Name|	|Main Dish|	|Dessert|
 |Leanne|	|Gado Gado	French| |Apple Cake|
 
 # November 10, 2025
-idk what to put here 
+Reflecting on skill, hadits, or moments from the semester and how next year.
+
