@@ -89,3 +89,8 @@ Name|	|Main Dish|	|Dessert|
 # November 10, 2025
 Reflecting on skill, hadits, or moments from the semester and how next year.
 
+# November 3, 2025
+1.A lack of funding for the Supplemental Nutrition Assistance Program (SNAP) would be a major crisis because over 42 million Americans rely on it to afford groceries
+2.Food banks provide emergency food and practical support to people who have been left without enough money to live on.
+3.Unfortunately, the internet also makes it harder to maintain your privacy. Even if you're not on social media, all kinds of information about you can easily be found.
+4.NourishNet would function as a comprehensive digital platform, integrating a mobile app and a website, designed to connect surplus food sources with individuals and families facing food insecurity in real-time.
