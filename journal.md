@@ -94,3 +94,6 @@ Reflecting on skill, hadits, or moments from the semester and how next year.
 2.Food banks provide emergency food and practical support to people who have been left without enough money to live on.
 3.Unfortunately, the internet also makes it harder to maintain your privacy. Even if you're not on social media, all kinds of information about you can easily be found.
 4.NourishNet would function as a comprehensive digital platform, integrating a mobile app and a website, designed to connect surplus food sources with individuals and families facing food insecurity in real-time.
+
+# November 17, 2025
+for my break im just going be on my pc playing games
