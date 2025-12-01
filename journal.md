@@ -97,3 +97,6 @@ Reflecting on skill, hadits, or moments from the semester and how next year.
 
 # November 17, 2025
 for my break im just going be on my pc playing games
+
+# December 1, 2025
+all i did at home is play on my PC and my headset 
