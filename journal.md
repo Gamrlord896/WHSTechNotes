@@ -99,4 +99,4 @@ Reflecting on skill, hadits, or moments from the semester and how next year.
 for my break im just going be on my pc playing games
 
 # December 1, 2025
-all i did at home is play on my PC and my headset 
+Drones are used for a wide variety of purposes, from inspections and agriculture to search and rescue, delivery, and entertainment. They are valuable in many industries because they can increase safety, improve efficiency, and access hard-to-reach areas for tasks like mapping, surveillance, and data collection. 
