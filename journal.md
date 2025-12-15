@@ -99,4 +99,9 @@ Reflecting on skill, hadits, or moments from the semester and how next year.
 for my break im just going be on my pc playing games
 
 # December 1, 2025
-Drones are used for a wide variety of purposes, from inspections and agriculture to search and rescue, delivery, and entertainment. They are valuable in many industries because they can increase safety, improve efficiency, and access hard-to-reach areas for tasks like mapping, surveillance, and data collection. 
+Drones are used for a wide variety of purposes, from inspections and agriculture to search and rescue, delivery, and entertainment. They are valuable in many industries because they can increase safety, improve efficiency, and access hard-to-reach areas for tasks like mapping, surveillance, and data collection.
+# December 8, 2025
+AI misinterpreting complex visual cues (flashing lights, stop arm position, children), sensor blind spots (cone-shaped vision), unusual bus configurations, or confusing road layouts (medians)
+# December 15, 2025
+Just be at home play game on my pc
+
