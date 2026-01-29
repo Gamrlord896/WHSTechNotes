@@ -110,4 +110,6 @@ all i did play on my pc
 Unmoderated online spaces foster various harms, including widespread hate speech, cyberbullying, and harassment, leading to severe mental health impacts like anxiety, depression, and body image issues
 # January 20, 2026
 dont know to put here 
+# January 29, 2026
+i had some struggled with the test but i think i did good :)
 
