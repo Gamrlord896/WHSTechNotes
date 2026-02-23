@@ -113,5 +113,7 @@ dont know to put here
 # January 29, 2026
 i had some struggled with the test but i think i did good :)
 # February 2, 2026 
-Personal hygiene and self-care are critical in shared environments to prevent the spread of infectious diseases, reduce bacteria/viruses on shared surfaces, and foster a comfortable, respectful, and socially acceptable atmosphere. Good habits, including handwashing and bathing, protect communal health and, by promoting self-esteem, improve personal well-being in workplaces or homes. 
+Personal hygiene and self-care are critical in shared environments to prevent the spread of infectious diseases, reduce bacteria/viruses on shared surfaces, and foster a comfortable, respectful, and socially acceptable atmosphere. Good habits, including handwashing and bathing, protect communal health and, by promoting self-esteem, improve personal well-being in workplaces or homes.
+# February 23, 2026
+idk
 
