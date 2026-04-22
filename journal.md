@@ -120,3 +120,5 @@ idk
 idk
 # March 30, 2026
 idk
+# April 13, 2026
+Modern spece technology is mostly reliable, but long missions still come with risk 
