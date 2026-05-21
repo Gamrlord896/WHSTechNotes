@@ -126,3 +126,5 @@ Modern spece technology is mostly reliable, but long missions still come with ri
 My actions on app like TikTok, Google, and ChatGPT help train AI systems. When I search , scroll, or like somethings, I give companies date about what Iperfer. For example, watching gaming videos longer tells the algorithm I enjoy that content. Companies use this data to improve their AI and make better predictions. This show I,m not just a user but part of the training process.
 # May 11, 2026
 I think I grew the most in my confidence this year. At the start of the year, i was quieter and didn,t like speaking up. 
+# May 18, 2026
+IDK
